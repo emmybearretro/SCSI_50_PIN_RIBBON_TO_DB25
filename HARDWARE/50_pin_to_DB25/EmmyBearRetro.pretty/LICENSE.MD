@@ -1,0 +1,1 @@
+These are our logo files, do not claim them as your own.
